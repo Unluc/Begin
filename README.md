@@ -1,2 +1,2 @@
 # I am a beginer
-Dont look at this code, i dont want you to cry. 
+Dont look at this code, i dont want to make you cry. 
