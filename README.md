@@ -1,2 +1,2 @@
-# Begin
-Dont watch this code, i dont want that you crying. 
+# I am a beginer
+Dont watch this code, i dont want you to cry. 
